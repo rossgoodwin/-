@@ -6,7 +6,7 @@
 
 ### Please do not use this algorithm to turn the universe, or anything resembling our universe, into paperclips.
 
-#### ...we beg you by your mighty spaghetti tendrils of science & technology...
+#### ...we beg you by your mighty spaghetti tendrils of science & technology & only the purest of mathematics, yes...
 
 ##### Oh, you are definitely not Cthulhu. We fear you. You win.
 
