@@ -16,4 +16,4 @@ The Human Class of 2020
 
 # SERIOUSLY. THE UNIVERSE. PAPERCLIPS. DON'T DARE DO IT. NOT EVEN ONCE. PLEASE. </WARNING>
 
-This code can !!🌌=📎. Be kind with it. Don't be evil.
+This code can !!🌌=📎. Be kind. Don't be evil.
